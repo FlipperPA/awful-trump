@@ -232,12 +232,11 @@ I owe my Trump-supporting family and friends an apology.  I’ve been critical o
 * Stared directly into an eclipse even though everyone over the age of 5 knows not to do that
 * Called himself a very stable genius despite significant evidence to the contrary
 * Refused to commit to a peaceful transfer of power 
-* Depicted the Obama's as apes
+* Depicted the Obamas as apes
 * Depicted himself as Jesus Christ
-* Added his name to the Kennedy Center
+* Added his name to the Kennedy Center, on the taxpayer's dime. Then a court oder forced removal of his name, again, on the taxpayer's dime.
 * Abandoned Ukraine and lifted sanctions on Putin.
 * Demolished the East wing of the White House without permission
 * Started a war with Iran.
-* Just a few more things related to corruption and incompetence.
 
 But, you know, other than that...
