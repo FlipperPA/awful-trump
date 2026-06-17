@@ -237,6 +237,6 @@ I owe my Trump-supporting family and friends an apology.  I’ve been critical o
 * Added his name to the Kennedy Center, on the taxpayer's dime. Then a court oder forced removal of his name, again, on the taxpayer's dime.
 * Abandoned Ukraine and lifted sanctions on Putin.
 * Demolished the East wing of the White House without permission
-* Started a war with Iran because he "had a feeling." After over a decade of bashing Obama's nuclear deal with Iran, which unfroze $50 billion of Iran's money in return for remove 97% of nuclear materials, signed a Memorandum of Understanding that unfreezes $300 billion (six times as much) for no action on nuclear materials (they'll talk about it later) 
+* Started a war with Iran because he "had a feeling." After over a decade of bashing Obama's nuclear deal with Iran, which unfroze $50 billion of Iran's money in return for removing 97% of nuclear materials and agreeing to inspections, Trump signed a Memorandum of Understanding that unfreezes $300 billion (six times as much) for no action on nuclear materials (just an agreement to "discuss is later") 
 
 But, you know, other than that...
