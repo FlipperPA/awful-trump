@@ -2,14 +2,14 @@
 
 I owe my Trump-supporting family and friends an apology.  I’ve been critical of the Trump presidency all along. But to be fair, President Trump isn’t that bad, other than when:
 
-* He incited an insurrection against the government
+* He incited an insurrection against the American government
 * Mismanaged a pandemic that killed more than a million more Americans than it would have under proper management
 * Separated children from their families, and lost those children in the bureaucracy
 * Tear-gassed peaceful protesters on Lafayette Square so he could hold a photo-op holding a Bible in front of a church
 * Tried to block all Muslims from entering the country
 * Got impeached... twice
 * Had the worst jobs record of any president in modern history
-* Pressured Ukraine to dig up dirt on Joe Biden; still holds a grudge that they didn't.
+* Pressured Ukraine to dig up dirt on Joe Biden; still holds a grudge that they didn't
 * Fired the FBI director for investigating his ties to Russia
 * Bragged about firing the FBI director on TV
 * Took Vladimir Putin’s word over the US intelligence community
@@ -128,8 +128,8 @@ I owe my Trump-supporting family and friends an apology.  I’ve been critical o
 * Eliminated the White House office of pandemic response
 * Used soldiers as campaign props
 * Fired any advisor who made the mistake of disagreeing with him
-* Demanded the Pentagon throw him a Soviet-style military parade
-* Hired a ton of white nationalists
+* Demanded the Pentagon throw him a Soviet-style military parade, costing American taxpayers $45 million
+* Hired many white nationalists
 * Politicized the civil service
 * Did absolutely nothing after Russia hacked the U.S. government
 * Falsely said the Boy Scouts called him to say his bizarre Jamboree speech was the best speech ever given to the Scouts
@@ -138,7 +138,7 @@ I owe my Trump-supporting family and friends an apology.  I’ve been critical o
 * Suggested he was fine with China’s oppression of the Uighurs
 * Attacked the Supreme Court when it ruled against him
 * Summoned Pennsylvania state legislative leaders to the White House to pressure them to overturn the election
-* Spent countless hours every day watching Fox News
+* Spent countless hours in "Executive Time" watching Fox News, instead of working for the American people
 * Refused to allow his administration to comply with Congressional subpoenas
 * Hired Rudy Giuliani as his lawyer
 * Tried to punish Amazon because the Jeff Bezos-owned Washington Post wrote negative stories about him
