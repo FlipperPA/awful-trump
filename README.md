@@ -237,6 +237,7 @@ I owe my Trump-supporting family and friends an apology.  I’ve been critical o
 * Added his name to the Kennedy Center, on the taxpayer's dime. Then a court oder forced removal of his name, again, on the taxpayer's dime.
 * Abandoned Ukraine and lifted sanctions on Putin.
 * Demolished the East wing of the White House without permission, paved over the Rose garden... it looks like a meth family moved in
-* Started a war with Iran because he "had a feeling." After over a decade of bashing Obama's nuclear deal with Iran, which unfroze $50 billion of Iran's money in return for removing 97% of nuclear materials and agreeing to inspections, Trump signed a Memorandum of Understanding that unfreezes $300 billion (six times as much) for no action on nuclear materials (just an agreement to "discuss is later") 
+* Started a war with Iran because he "had a feeling." After over a decade of bashing Obama's nuclear deal with Iran, which unfroze $50 billion of Iran's money in return for removing 97% of nuclear materials and agreeing to inspections, Trump signed a Memorandum of Understanding that unfreezes $300 billion (six times as much) for no action on nuclear materials (just an agreement to "discuss is later")
+* Spent $14 million on repainting the Reflecting Pool, but without actual scientists to consult since he fired them, used too dark a paint color causing the pool to be hotter and algae to grow. [Just twelve days after the pool reopened, the paint is already peeling](https://bsky.app/profile/headquartersnews.bsky.social/post/3mol46igqk22w).
 
 But, you know, other than that...
